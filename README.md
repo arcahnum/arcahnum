@@ -1,5 +1,4 @@
-[PLEASE READ]
-**ive had an upcoming problem of people flirting with me?? im taken and i'd like for this to be avoided from now on, thanks.**
+
 
 <p align="center">
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/51efd603-5ced-43cc-8b94-48c8b349615e" />
