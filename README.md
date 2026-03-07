@@ -14,7 +14,7 @@ introduction below if you dont feel like clicking on external sites
 <p align="center">
 <img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/eff1612a-50ab-4b1b-9a6a-93c21982937c" />
 <p align="center">
-arcanum/sammy | 17 ( 4th march )
+arcanum/sammy | adult
 <p align="center">
 i am a man , please do not refer to me as anything else
 <p align="center">
