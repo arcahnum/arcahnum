@@ -5,7 +5,7 @@
 
 
 <p align="center">
- <a href="https://arcanum.straw.page">strawpage<a/>     .   <a href="https://arcanum.atabook.org">atabook<a/>                                                  
+<a href="https://arcanum.atabook.org">atabook<a/>                                                  
 <p align="center">
 c+h always | w2i (ill try to respond if youre still online)
 <p align="center">
